@@ -26,7 +26,7 @@ I'm a passionate *Cloud Computing enthusiast* and a recent *BSc IT graduate, cur
 
 #### 📫 Connect With Me:
 - [LinkedIn](https://linkedin.com/in/your-link-here)
-- Email: your.email@example.com
+- Email:umarshaikh1822@gmail.com
 
 ---
 
